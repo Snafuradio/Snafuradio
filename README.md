@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI and cracking the Tax & Legal Codes
 - 💞️ I’m looking for business who want to reduce taxes, get refunds and qualify for certain programs
 - 📫 How to reach me scott@dallasmms.com
-- 😄 Pronouns: Are for Retards
+- 😄 Pronouns: Classified under First Amendment
 - ⚡ Fun fact: In the age of information ignorance is a choice
 
 <!---

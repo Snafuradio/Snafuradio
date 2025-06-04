@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Snafuradio
-- 👀 I’m interested in helping business collect R&D credits
+- 👀 I’m interested in helping business collect R&D credits- and all tech qualifies
 - 🌱 I’m currently learning AI and cracking the Tax & Legal Codes
 - 💞️ I’m looking for business who want to reduce taxes, get refunds and qualify for certain programs
 - 📫 How to reach me scott@dallasmms.com
